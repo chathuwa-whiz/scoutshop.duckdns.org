@@ -1,1 +1,0 @@
-# scoutshop.duckdns.org
